@@ -1,1 +1,0 @@
-# Girl-Script-Summer-of-code-website-clone
